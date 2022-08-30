@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CHANDEL1234
+- 👋 Hi, I’m @sanskar_singh
 - 👀 I’m interested in learing
 - 🌱 I’m currently learning basics
 - 💞️ I’m looking to collaborate on ...
